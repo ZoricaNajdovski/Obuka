@@ -1,3 +1,3 @@
 **Zorica Najdovski**\
 *Gimnazija*\
-[https://vranjskagimnazija.edu.rs/]
+[moja skola)(https://vranjskagimnazija.edu.rs/]
